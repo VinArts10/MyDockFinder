@@ -1,3 +1,2 @@
 # MyDockFinder
-Download My DockFinder FOR FREE
-MAY BE PAID FOR ON Steam.
+Download My DOCK FIN
