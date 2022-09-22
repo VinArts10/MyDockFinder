@@ -1,2 +1,2 @@
 # MyDockFinder
-Download My DOCK FIN
+Download My DOCK FINDER FROM THIS WEBSITE
